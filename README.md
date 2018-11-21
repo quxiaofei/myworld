@@ -1,0 +1,2 @@
+# myworld
+my opinion,idea.
